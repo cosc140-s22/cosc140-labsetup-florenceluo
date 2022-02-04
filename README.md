@@ -4,11 +4,11 @@
 
 ### What is one thing that has surprised you so far in Cardiff?
 
-your response
+how much people love to bike
 
 ### What are three things that you hope to get out of your study abroad experience this semester?
 
-your response
+i want to travel and see everything in the country not just wales, also want to learn about the culture, and learn new skills
 
 ## Feedback
 
