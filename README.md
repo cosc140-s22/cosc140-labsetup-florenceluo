@@ -12,5 +12,5 @@ i want to travel and see everything in the country not just wales, also want to 
 
 ## Feedback
 
-Once you commit and push your work to Github, I'll update this section with feedback.
+The bike paths are so much more prominent here than they were a few years ago, which is awesome to see.  The bike sharing also (obviously!) helps.
 
